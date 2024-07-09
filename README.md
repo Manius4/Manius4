@@ -1,0 +1,1 @@
+I'm non typical selflearned coder (as you maybe think), I started when i was 19 years old guy who during his gap years has started reading lot's of books and one of these was ''Clear Code'' - Martin Robert C., There everything has started 
